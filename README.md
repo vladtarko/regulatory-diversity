@@ -1,4 +1,4 @@
-# Varieties of regulatory regimes
+# International Regulatory Diversity Over 50 Years: Political Entrepreneurship within Fiscal Constraints
 
 by Vlad Tarko (University of Arizona) and Ryan Safner (Hood College)
 
